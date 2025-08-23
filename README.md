@@ -1,2 +1,1 @@
-我会公开源码
-😂
+https://wsomoqaz.github.io/tianscript/
